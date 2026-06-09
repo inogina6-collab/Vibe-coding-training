@@ -1,1 +1,2 @@
-# Vibe-coding-training
+# Vibe coding training !
+**Хорошего дня , Алексей !**
